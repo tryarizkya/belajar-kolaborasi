@@ -1,3 +1,3 @@
 # belajar-kolaborasi
-*Awalnya sedikit bingung*
+*Awalnya sedikit bingung*<br>
 terus semakin bingung deh
