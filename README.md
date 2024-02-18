@@ -1,3 +1,5 @@
 # belajar-kolaborasi
+aku trya ilmu aktuaria<br>
 *Awalnya sedikit bingung*<br>
-terus semakin bingung deh
+lama-lama aku pusing
+
